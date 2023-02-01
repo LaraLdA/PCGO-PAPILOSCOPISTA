@@ -10,7 +10,6 @@ Também conforme o edital :
 
 Conclui-se ,portanto, que todos os que alcançaram a nota 23,6 terão suas provas discursivas corrigidas.
 
-O edital pode ser consultado no link abaixo:
-https://institutoaocp.org.br/concursos/arquivos/edital-abertura-006.pdf?
+O edital pode ser consultado no link :https://institutoaocp.org.br/concursos/arquivos/edital-abertura-006.pdf?
 
 
